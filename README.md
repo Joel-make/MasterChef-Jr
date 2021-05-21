@@ -1,3 +1,3 @@
-Hello fellow Chef,
+Hello fellow Chefs,
 I am Joel Joseph...
 This project is the recipe of making MOZZARELLA STICKS!!!
